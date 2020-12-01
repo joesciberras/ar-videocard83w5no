@@ -1,0 +1,1 @@
+# ar-videocard83w5no
